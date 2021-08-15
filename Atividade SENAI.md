@@ -11,6 +11,7 @@ Efésios 5:1-7
 7 Portanto, não sejais seus companheiros.
 
 Efésios 5:8-16
+
 8 Porque noutro tempo éreis trevas, mas agora sois luz no Senhor; andai como filhos da luz
 9 (Porque o fruto do Espírito está em toda a bondade, e justiça e verdade);
 10 Aprovando o que é agradável ao Senhor.
